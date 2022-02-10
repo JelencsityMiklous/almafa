@@ -1,3 +1,3 @@
 # almafa
 # első commit
-# Körtefa
+# Körtefal
