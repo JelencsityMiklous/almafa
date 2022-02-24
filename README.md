@@ -1,5 +1,5 @@
 # almafa
-# első commit
+# elsss alma
 # Körtefala
 # változtatás
 # csakaos biga
