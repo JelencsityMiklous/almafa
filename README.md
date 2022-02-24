@@ -1,4 +1,4 @@
-# korteafa
+# kosrteafa
 # elsssjhsdfhjhooo alma
 # Körtefala
 # változtatás
