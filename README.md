@@ -1,5 +1,5 @@
-# kosrteafa
-# elsssjhsdfhjhooo alma
-# Körtefala
-# változtatás
+# kosewqrteafa
+# elsssjhsewqdfhjhooo alma
+# Körtefwqewqala
+# váltewqoztatás
 # csakaos biga
