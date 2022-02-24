@@ -1,4 +1,4 @@
-# kosewqrteafa
+# kosewhkqrteafa
 # elsssjhsewqdfhjhooo alma
 # Körtefwqewqala
 # váltewqoztatás
