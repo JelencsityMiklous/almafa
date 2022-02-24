@@ -1,4 +1,3 @@
+# <tejbegriz>
 # almafa
-# első commit
-# Körtefal
-# változtatás
+# banánbokor aa
