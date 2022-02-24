@@ -1,5 +1,5 @@
 # almafa
-# elsss alma
+# elsssooo alma
 # Körtefala
 # változtatás
 # csakaos biga
