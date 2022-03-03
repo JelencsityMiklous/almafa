@@ -1,4 +1,4 @@
 
-# zokzigén
+# zokzigéndad
 <kolbasz>
 
